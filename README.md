@@ -5,3 +5,7 @@
 A Pen was created on CodePen.io. 
 
 Original URL: [Click Here](https://codepen.io/desireealexia/pen/LYXPBGV)
+
+<br>
+
+View certificate for the course [here](https://www.brightnetwork.co.uk/certificates/digital-skills_if020mff06njwg/)
